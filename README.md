@@ -74,6 +74,4 @@ Every moment you spend running campaigns the old-fashioned way is a moment your 
 With the help of **SMMExpertService**, you can take your campaigns to the next level in just 24 hours. So, what are you waiting for?  
 
 👉 **Contact us today** and see how easy it is to transform your campaigns with aged Facebook accounts.  
-
-🌐 www.SMMExpertService.com 
 --- 
